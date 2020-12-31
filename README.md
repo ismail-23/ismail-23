@@ -8,5 +8,5 @@
 - 💬 Ask me about tech realated stuff
 - 📫 How to reach me: Instagram-ismail_abi23
 - 😄 Pronouns: He/His
-- ⚡ Fun fact: I spent my whole day learning in flutter
+- ⚡ Fun fact: you can ask me anything bcuz there is friend called google
 -->
